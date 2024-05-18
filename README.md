@@ -1,3 +1,3 @@
 ### Sohyun Park
 
-Research Engineer @ LG Electronics Inc.
+Senior Research Engineer @ LG Electronics Inc.
